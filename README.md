@@ -1,2 +1,6 @@
 # Management-Project-CS
 Group Management Project CS Class 12th 
+SATWIK SINHA
+JATIN SHARMA
+VARUN SINGH
+PARIKSHIT UPADHYAY
